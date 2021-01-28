@@ -1,5 +1,7 @@
 # -cordcloud-
-cordcloud激活码 cc邀请码  小飞机  科学上网
+cordcloud激活码 cc邀请码  小飞机  科学上网  
+https://www.cordcloud.pro
+https://www.cordcloud.uno/
 
 ### 激活码 如果失效了就是被别人用了换一个就好
 ##### 23NXSjAFE7JjAfKQTK0wpmOagVJT3uSj
